@@ -1,3 +1,4 @@
 assignment by sir gulsher 
 group members.
-Nisha,Minahil, Namarta and priya
+Nisha,Minahil Fateh, Namarta and priya.
+
